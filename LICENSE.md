@@ -1,4 +1,4 @@
-#  
+#  professional anime card collection Script is the best anime card collection Script, featuring custom skins and no cooldown. Safe and powerful for all
 
 
 
